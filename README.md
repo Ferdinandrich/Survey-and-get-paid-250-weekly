@@ -1,0 +1,2 @@
+# Survey-and-get-paid-250-weekly
+Lookout for Apple watches, Phones. ⌚ Available for sale @ good rate,  I'm into importation of  iphones,  and Apple Gadgets etc, kindly contact me at ferdinandrichard660@gmail.com for business negotiations and I will pay you Survey fee @250$ plus The Stock price and the shipping fee ,I have urgent demand on customer purchase , I will be sending you the money via western union or PayPal. send me your full name, zip code and email address Asap..
